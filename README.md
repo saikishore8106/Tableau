@@ -4,10 +4,6 @@ Please Give your review for us (Spend 2 min for us): https://forms.gle/jQLpsrFhi
 Download from here : https://www.tableau.com/products/public/download
 
 
-Follow Us on : 
-
-## 🌐 Connect with Me
-
 ## 🌐 Connect with Me
 
 <p align="center">
